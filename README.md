@@ -3,7 +3,7 @@
 Please go to YouTube.
 
 Tutorial Video:
-https://www.youtube.com/playlist?list=PLPNZaDPkvz_aOU21VOsoQQYj4BLtys9dX
+https://goo.gl/YYjKMr
 
 
 What is Zephyr Project?
